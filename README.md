@@ -1,4 +1,4 @@
-# Welcome to my first GitHub :)
+# Welcome to my GitHub :)
 ## About me
 I´m Janine but people call me _Jeanny_. I live in the south of Germany with my 2 dogs _Lilly_ and _Lou_. 
 
