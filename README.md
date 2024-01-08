@@ -25,7 +25,7 @@ In my free time I like to play video games like
 
   
 Those are my hobbies in Germany, when im in Bangkok its a bit different, because then ...
-- I like to go out in Bars and listen to live music
+- 🎵 I like to go out in Bars and listen to live music
 - meet my friends for lunch or dinner 
 - take little trips to the beach
 - visiting traditional festivals
