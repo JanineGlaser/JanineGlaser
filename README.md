@@ -28,7 +28,12 @@ Those are my hobbies in Germany, when im in Bangkok its a bit different, because
 - I like to go out in Bars and listen to live music
 - meet my friends for lunch or dinner 
 - take little trips to the beach
+- visiting traditional festivals
+
+![image](https://media.giphy.com/media/bZc0itwmip0g8/giphy-downsized-large.gif)
+  
   
 
 I hope this gives you a bit of an idea about me, I´m open for any kind of questions.
+
 
